@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mkatkin
+- 👀 I’m interested in exercising and long term equity speculation
+- 🌱 I’m currently learning Android application development
+- 📫 katkin.michael@gmail.com
